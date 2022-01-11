@@ -1,4 +1,4 @@
-%BA%D0%B0%D1%88%D0%BA%D0%B0+%D0%BC%D0%BE%D0%BA%D1%DO%D2%D0%B0%D1%81%D0%B8%D0%BD%D1%8B+?%D1%87%D0%BB%D0%B5%D0%BD&gs_l=hp.3...192787.206313.12.206542.48.46.2.0.0.0.190.7355.0j43.45.0.clfh..0.0.ytz2PqzhMAc&pbx=1&bav=on.2,or.r_gc.r_pw.r_cp.r_qf.,cf.osb&fp=fd2cf4e896a87c19&biw=1680&bih=?882',
+
      'http://nova.rambler.ru/search?btnG=%D0%9D%?D0%B0%D0%B..',
      'http://www.google.ru/url?sa=t&rct=?j&q=&e..',
      'https://www.facebook.com/l.php?u=https://www.facebook.com/l.php?u=',
